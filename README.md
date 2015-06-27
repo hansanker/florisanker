@@ -1,2 +1,2 @@
 # florisanker
-kunt van floris
+kunst van floris
